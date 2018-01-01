@@ -1,2 +1,2 @@
 # HuangYapingMaster
-黄亚平的博客页面
+静以修身，俭以养德！
